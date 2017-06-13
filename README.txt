@@ -1,7 +1,3 @@
-sg
-n`kpd^fgo- <gb
-^pkl¸b 
-d fh^ls¸dfphoks^cpovijb psbn¸<ar, sfd`g
-afds; b;sopi;ml ,amdf;liohj b
-alkASJDGJNALSDKJNLASKDJVH ASLDVKHJBOASLDN
-s
+Bonjour mon beau François d'amour.
+Je t'aime beaucoup, autant que tu es beau.
+Tu es BEAUCOUP beau.
